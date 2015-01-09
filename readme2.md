@@ -1,3 +1,0 @@
-hello huaishu£¡
-
-dajia nihao!
